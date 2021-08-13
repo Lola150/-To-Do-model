@@ -1,0 +1,1 @@
+i am realizing my mistakes and i am getting better. baby steps!
